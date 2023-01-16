@@ -1,3 +1,6 @@
+literally all my skins
+if u think there's a skin I'm missing here lmk so i can put it here
+
 # Myuka's skins
 # [Stop aSKINg For It v1.0 (Arrows)](https://t.co/8x6PJkTnjR) ![image](https://cdn.discordapp.com/attachments/904464227668987904/1064249391952699412/screenshot3462.jpg)
 # [chordxx](https://drive.google.com/file/d/1p74egAfJyr1SOlHjj7dU8LS_LfS6jdiB/view) ![image](https://cdn.discordapp.com/attachments/904464227668987904/1064250525173940286/screenshot3463.jpg)
