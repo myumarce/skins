@@ -9,4 +9,4 @@ if u think there's a skin I'm missing here lmk so i can put it here
 # [Komori - Hacka Doll NO.3 (Myuka edit)](https://drive.google.com/file/d/1oNYYRNupsKdQJ7g2-gzg1UQCbPb_e7UF/view) ![image](https://cdn.discordapp.com/attachments/904464227668987904/1064252804899803207/screenshot3466.jpg)
 # [Myuka's Skin v1 (gameplay only)](https://cdn.discordapp.com/attachments/904464227668987904/1064253136723787876/ARROW_VER_XD.osk) ![image](https://cdn.discordapp.com/attachments/904464227668987904/1064253314667135197/screenshot3467.jpg)
 # [awaawwawaawaw](https://drive.google.com/file/d/1qIqSCeSKEQtwota4KV7cb_Fuwe_Cjzzx/view) ![image](https://cdn.discordapp.com/attachments/904464227668987904/1064253791735652392/screenshot3468.jpg)
-# [Kuru skin](https://t.co/DiaHfN1D0s) ![image](https://pbs.twimg.com/media/FmiIs3nXkAQLw5e?format=jpg&name=large)
+# [Kuru skin]([https://t.co/DiaHfN1D0s](https://cdn.discordapp.com/attachments/904464227668987904/1064241226070638612/Kuru_skin.osk)) ![image](https://pbs.twimg.com/media/FmiIs3nXkAQLw5e?format=jpg&name=large)
