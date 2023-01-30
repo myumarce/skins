@@ -11,4 +11,4 @@ if u think there's a skin I'm missing here lmk so i can put it here
 # [awaawwawaawaw](https://drive.google.com/file/d/1qIqSCeSKEQtwota4KV7cb_Fuwe_Cjzzx/view) ![image](https://cdn.discordapp.com/attachments/904464227668987904/1064253791735652392/screenshot3468.jpg)
 # [Kuru skin](https://cdn.discordapp.com/attachments/904464227668987904/1064241226070638612/Kuru_skin.osk) ![image](https://pbs.twimg.com/media/FmiIs3nXkAQLw5e?format=jpg&name=large)
 # [unknown](https://cdn.discordapp.com/attachments/904464227668987904/1069655631549702234/zzz.rar)
-!image[https://cdn.discordapp.com/attachments/904464227668987904/1069655728584921138/screenshot3530.jpg]
+![image](https://cdn.discordapp.com/attachments/904464227668987904/1069655728584921138/screenshot3530.jpg)
