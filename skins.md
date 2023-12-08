@@ -2,6 +2,8 @@ literally all my skins
 if u think there's a skin I'm missing here lmk so i can put it here
 also if u have any skins from me please link them to me on my discord (appreciated)
 
+SOME LINKS ARE BROKEN BE AWARE PLEASE
+
 # Myuka's skins
 # [Stop aSKINg For It v1.0 (Arrows)](https://t.co/8x6PJkTnjR) ![image](https://cdn.discordapp.com/attachments/904464227668987904/1064249391952699412/screenshot3462.jpg)
 # # [Stop aSKINg For It (Pai's edition)](https://www.dropbox.com/s/ohlfi2p8ydfgn1m/Stop%20aSKINg%20For%20It%20v1.0%20%28Pai%27s%20edit%29.osk?dl=0) ![image](https://cdn.discordapp.com/attachments/904464227668987904/1069657187946868857/screenshot3531.jpg)
@@ -16,3 +18,4 @@ also if u have any skins from me please link them to me on my discord (appreciat
 ![image](https://cdn.discordapp.com/attachments/904464227668987904/1069655728584921138/screenshot3530.jpg)
 # [That one skin from my gamma video](https://drive.google.com/file/d/1qnx-v1VqXQny2oITkeYMM3CcRBUjk9Mu/view?usp=sharing) ![image](https://cdn.discordapp.com/attachments/1165317648771461193/1165379105655632075/screenshot4735.png?ex=6546a2de&is=65342dde&hm=5d5b8425083c18a7a7e132108886769d40676e03ea31017dc297cdbbf73e5ea4&)
 # [Cinnamon Roll skin w/ my own edit](https://drive.google.com/file/d/1mRlb7ZfQDFUXD5zVwQ4wGf_h09DJrie-/view?usp=sharing) ![image](https://cdn.discordapp.com/attachments/1165317648771461193/1165378037253161010/screenshot4734.png?ex=6546a1df&is=65342cdf&hm=824cc6d844c7aacca8166379dfa1251c45654d177d1087921c356ff6e5a95674&)
+# [myu updated with very updated elements](https://cdn.discordapp.com/attachments/904464227668987904/1182485851607945298/-__very_awesome_skin.osk?ex=6584dec4&is=657269c4&hm=35daa05eefa3f3055af20d3da81ea18f353728925d65317e303804ef44c59e40&) ![image](https://media.discordapp.net/attachments/904464227668987904/1182527001693802537/screenshot4918.png?ex=65850517&is=65729017&hm=a4444836c5c185c1d84b9cb108ed08763da2f64842da5b817fbbc0f91e3d581c&=&format=webp&quality=lossless&width=967&height=544)
