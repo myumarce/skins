@@ -19,3 +19,4 @@ SOME LINKS ARE BROKEN BE AWARE PLEASE
 # [Cinnamon Roll skin w/ my own edit](https://drive.google.com/file/d/1NmDD2d-tqVkoxxBXHDzo-GgnEHaX5230/view?usp=drive_link) ![image](https://imgur.com/kvcYCWT.png)
 # [myu updated with very updated elements](https://drive.google.com/file/d/1oRvVwY2iKv1JdCnf7Ov0pEKHSZVoSYJH/view?usp=drive_link) ![image](https://imgur.com/ja7bmCa.png)
 # [tekkito2 edit](https://www.mediafire.com/file/xcx1a5zbkaye6rn/#+-+tekkito2+ft+jb+the+voice+tu+perfume+a+chanel.osk/file) ![image](https://imgur.com/xIoXdWW.png)
+# [tekkito2.1 edit](https://www.mediafire.com/file/fklulc8b6rmmuq7/tekkito2.osk/file) ![image](https://i.imgur.com/ydtbJrq.png)
