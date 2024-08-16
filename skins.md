@@ -20,3 +20,7 @@ SOME LINKS ARE BROKEN BE AWARE PLEASE
 # [myu updated with very updated elements](https://drive.google.com/file/d/1oRvVwY2iKv1JdCnf7Ov0pEKHSZVoSYJH/view?usp=drive_link) ![image](https://imgur.com/ja7bmCa.png)
 # [tekkito2 edit](https://www.mediafire.com/file/xcx1a5zbkaye6rn/#+-+tekkito2+ft+jb+the+voice+tu+perfume+a+chanel.osk/file) ![image](https://imgur.com/xIoXdWW.png)
 # [tekkito2.1 edit](https://www.mediafire.com/file/fklulc8b6rmmuq7/tekkito2.osk/file) ![image](https://i.imgur.com/ydtbJrq.png)
+
+# Etterna skin
+# [tekkito2 etterna edit](https://cdn.discordapp.com/attachments/1169778980514181300/1257915524726263958/myuedit.rar) ![image](https://i.imgur.com/OR1K17t.png)
+# tekkito 2 etterna judgements ![image](https://cdn.discordapp.com/attachments/1169778980514181300/1271660452539006986/wowie_1x6_Doubleres.png?ex=66c0b756&is=66bf65d6&hm=c2d1cc83c8b6f689773648abc24563e49313ebb909c516c0e9d66dac527680a3&)
