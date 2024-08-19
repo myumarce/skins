@@ -22,5 +22,5 @@ SOME LINKS ARE BROKEN BE AWARE PLEASE
 # [tekkito2.1 edit](https://www.mediafire.com/file/fklulc8b6rmmuq7/tekkito2.osk/file) ![image](https://i.imgur.com/ydtbJrq.png)
 
 # Etterna skin
-# [tekkito2 etterna edit](https://cdn.discordapp.com/attachments/1182179902435369092/1274398825812852786/myuedit.rar?ex=66c21be5&is=66c0ca65&hm=d852e88989c46e5490a1bd0bf2f668a3ce654b8963cb0f51305d5c723954d413&) ![image](https://i.imgur.com/OR1K17t.png)
+# [tekkito2 etterna edit](https://drive.google.com/file/d/148Ek7JiEljG6bOxDRUWkkDquWwfFyvtz/view?usp=sharing) ![image](https://i.imgur.com/OR1K17t.png)
 # tekkito 2 etterna judgements ![image](https://cdn.discordapp.com/attachments/1169778980514181300/1271660452539006986/wowie_1x6_Doubleres.png?ex=66c0b756&is=66bf65d6&hm=c2d1cc83c8b6f689773648abc24563e49313ebb909c516c0e9d66dac527680a3&)
